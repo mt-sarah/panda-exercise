@@ -6,4 +6,4 @@
 olive oil
 salt
 pepper
-oregano
+thyme
