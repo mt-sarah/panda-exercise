@@ -6,4 +6,4 @@
 6. cut tomatoes
 7. put tomatoes on bread
 8. add salt, pepper oil
-9. enjoy
+9. enjoy your meal!
