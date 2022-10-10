@@ -4,5 +4,6 @@
 2 cloves of garlic
 1 baguette
 olive oil
-salt 
+salt
 pepper
+oregano
